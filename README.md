@@ -19,5 +19,5 @@ My name is **Lucas S. Lima**, and I'm a master's student in the postgraduate pro
 
 - Email: lucas.limw8@gmail.com
 
-- LinkedIn: (linkedin.com/lucas-lima) [https://www.linkedin.com/in/lucas-lima-786aa1236/]
+- LinkedIn: www.linkedin.com/in/lucas-lima-786aa1236/
 
